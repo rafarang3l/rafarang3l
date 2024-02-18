@@ -19,5 +19,5 @@ Hey there! 👋 Welcome to my GitHub profile! Here's a little bit about me:
 - Make a positive impact through my work
 
 
-Thanks for stopping by! Happy coding! 🎉
+Desejo um mundo cheio de possibilidades e devires! 🌀
 
